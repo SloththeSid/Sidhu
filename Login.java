@@ -6,7 +6,19 @@ c
 cc
 sc
 ds
+csdcdsdscd
+dsc
+dsc
+dscdscdscdcds
+cdsc
+ds
+cds
+csd
 cs
-ciiiii-wiiiiiiiiiiiiiiiiiiiiiiiad
-w23
-wq111111111`
+csd
+csdc
+sdc
+dsc
+sc
+dsQQQqq]		qQqq
+
